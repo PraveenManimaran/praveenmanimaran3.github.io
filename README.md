@@ -3,7 +3,7 @@
 ### Education
 
 
-### Work Experinece
+### Work Experience
 Area Manager Intern @ Amazon
  - Project 1
  - Project 2
